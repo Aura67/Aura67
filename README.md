@@ -1,3 +1,3 @@
--  Hi, I’m Aura67 👋
+-  Hi, I’m Aura 👋
 -  Welcome to my profile 👀
 
